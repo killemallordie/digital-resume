@@ -24,9 +24,9 @@ Knowledge of Psychology, Subject Assessment, Observational Skills, Research Skil
 
 ### **Technical (IT)**
 
-**Tools --- Eclipse, NetBeans, Adobe Photoshop**
+Tools --- Eclipse, NetBeans, Adobe Photoshop
 
-**Languages --- C/C++, CSS, Java, HTML**
+Languages --- C/C++, CSS, Java, HTML
 
 ### **Interpersonal**
 
