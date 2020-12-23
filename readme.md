@@ -1,6 +1,7 @@
 # **Amiteshwar Singh**
 
-### 988-888-1115              amiteshwarchd@gmail.com
+### 988-888-1115
+### amiteshwarchd@gmail.com
 
 ## **EDUCATION**
 
