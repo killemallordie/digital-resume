@@ -15,7 +15,7 @@
 
 - Excelled in Computer Science classes
 
-### **Gian Jyoti Global School, Mohali --- Class XII, 2014**
+### Gian Jyoti Global School, Mohali --- Class XII, 2014
 
 - Opted for Medical
 
