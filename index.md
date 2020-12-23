@@ -14,7 +14,7 @@ _**Graduated in Psychology, Computer Science & Economics**_
 
 - Opted for Medical
 
-</br>
+
 
 # **Skills**
 
@@ -32,7 +32,7 @@ Knowledge of Psychology, Subject Assessment, Observational Skills, Research Skil
 
 Empathy, Communication Skills, Critical Thinking, Outgoing, Problem Solving
 
-</br>
+
 
 # **Achievements**
 
@@ -44,7 +44,7 @@ State Silver Medal in 100 m Sprint --- 2013
 
 Played at National Level Tournament --- 2013
 
-</br>
+
 
 # **Hobbies**
 
