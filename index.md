@@ -1,8 +1,3 @@
-# **Amiteshwar Singh**
-
-### 988-888-1115
-### amiteshwarchd@gmail.com
-
 ## **EDUCATION**
 
 ### **USOL PU, Chandigarh --- Masters of Arts, Present**
