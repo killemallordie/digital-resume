@@ -5,9 +5,9 @@
 
 ## **EDUCATION**
 
-### USOL PU, Chandigarh --- Masters of Arts, Present
+### **USOL PU, Chandigarh --- Masters of Arts, Present**
 
-### DAV College, Chandigarh --- Bachelor of Arts, 2020
+### **DAV College, Chandigarh --- Bachelor of Arts, 2020**
 
 **Graduated in Psychology, Computer Science & Economics**
 
