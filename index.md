@@ -1,4 +1,4 @@
-## **EDUCATION**
+# **EDUCATION**
 
 ### **USOL PU, Chandigarh --- Masters of Arts, Present**
 
@@ -14,7 +14,7 @@
 
 - Opted for Medical
 
-## **SKILLS**
+# **SKILLS**
 
 ### **Professional**
 
@@ -30,7 +30,7 @@ Knowledge of Psychology, Subject Assessment, Observational Skills, Research Skil
 
 Empathy, Communication Skills, Critical Thinking, Outgoing, Problem Solving
 
-## **ACHIEVEMENTS**
+# **ACHIEVEMENTS**
 
 ### **Track & Field**
 
@@ -40,6 +40,6 @@ State Silver Medal in 100 m Sprint --- 2013
 
 Played at National Level Tournament --- 2013
 
-**HOBBIES**
+# **HOBBIES**
 
 Sports --- Running, Swimming, Weight Training
